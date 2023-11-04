@@ -9,7 +9,7 @@
 - You can contact me in the following ways:
 - https://twitter.com/Lewis__Base
 - adiayran07@gmail.com
-- Discord: Lewis Base#5631
+- Discord: lewisbase (old: Lewis Base#5631)
 
 
 <!---
